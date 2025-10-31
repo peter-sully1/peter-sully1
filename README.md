@@ -1,1 +1,1 @@
-> Under constructions - Will update when I have cool projects to showcase :)
+> Under construction - Will update when I have cool projects to showcase :)
