@@ -1,2 +1,1 @@
-# peter-sully-1
-Readme for profile
+> Under constructions - Will update when I have cool projects to showcase :)
